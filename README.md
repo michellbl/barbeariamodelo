@@ -1,1 +1,1 @@
-# barbeariamodelo
+https://michellbl.github.io/barbeariamodelo/
